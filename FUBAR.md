@@ -1,2 +1,2 @@
-Hello this is Mark
+Because they make good Case Ideas
 
